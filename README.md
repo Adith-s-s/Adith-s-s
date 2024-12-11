@@ -5,9 +5,8 @@ Experienced professional with strong leadership skills seeking challenging roles
 ---
 
 ## 🌟 Connect with Me
-- [LinkedIn](https://www.linkedin.com/in/adith-s-s-707065189/)
 - [Professional Profile](https://bold.pro/my/adith/415r)
-
+- [LinkedIn](https://www.linkedin.com/in/adith-s-s-707065189/)
 ---
 
 ## 📚 Education
